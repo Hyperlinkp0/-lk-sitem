@@ -1,0 +1,1 @@
+geliştir de mi ab
